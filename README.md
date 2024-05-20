@@ -10,5 +10,4 @@ meu nome é thiago
 
   thiago20007sp@gmail.com
 
-  ![](<img src="https://media1.tenor.com/m/R_ibao6K9y4AAAAd/meusovos.gif" alt="Meusovos GIF - Meusovos GIFs"/>![Uploading image.png…]()
-)
+  ![](https://media1.tenor.com/m/PTf3Yl3dajgAAAAC/bolsonaro-finger-guns.gif)
