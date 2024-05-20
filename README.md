@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🇦🇫
+### Boas vindas ao meu perfil 🔫
 
 meu nome é thiago 
 
@@ -10,4 +10,4 @@ meu nome é thiago
 
   thiago20007sp@gmail.com
 
-  ![](https://tenor.com/pt-BR/view/kid-alien-believe-in-authorities-smile-acreditem-nas-autoridades-gif-17197903)
+  ![](https://media1.tenor.com/m/R_ibao6K9y4AAAAd/meusovos.gif)
